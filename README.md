@@ -20,4 +20,4 @@ Through these projects, I have strengthened my understanding of:
 ✅ Networking & Firewalls  
 
 ## 📫 Get in Touch  
-I'm always open to learning, collaborating, and improving. Feel free to **connect with me**:
+I'm always open to learning, collaborating, and improving. Feel free to **connect with me**
